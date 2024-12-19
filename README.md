@@ -1,0 +1,2 @@
+# gpt
+MUKA LU KAYA KONTOL
